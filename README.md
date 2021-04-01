@@ -4,7 +4,6 @@
 - 🌱 I’m currently learning everything 
 - 🤝 sharing my knowledge that I have to newer developer
 - 👯 meeting people already in industry
-- 🥅 2020 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to draw, play guitar and dive 🏊🏻‍♂️
 
 ### Connect with me:
