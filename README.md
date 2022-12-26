@@ -1,4 +1,4 @@
-### Hi there, I'm Onur - [website] 👋
+### Hi there, I'm Onur 👋
 
 - 🌱 I’m currently in a learning loop 
 - 🤝 sharing my knowledge that I have to newer developer
