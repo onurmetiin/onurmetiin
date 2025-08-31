@@ -1,6 +1,6 @@
 ### Hi there, I'm Onur 👋
 
-- 🌱 I’m currently had 5 years experience
+- 🌱 I’m currently had 5 years experience in mobile gaming industry as a developer
 - 👯 meeting people already in industry
 - ⚡ Fun fact: I love to play guitar and dive 🏊🏻‍♂️
 
