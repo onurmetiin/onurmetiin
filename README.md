@@ -1,7 +1,6 @@
 ### Hi there, I'm Onur 👋
 
-- 🌱 I’m currently in a learning loop 
-- 🤝 sharing my knowledge that I have to newer developer
+- 🌱 I’m currently had 5 years experience
 - 👯 meeting people already in industry
 - ⚡ Fun fact: I love to play guitar and dive 🏊🏻‍♂️
 
