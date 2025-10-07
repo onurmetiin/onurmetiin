@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Onur Metin 
+### Hi there 👋 I'm Onur 
 
 I am a creative and result-driven Unity Game Developer with 5 years of experience specializing in idle arcade and casual mobile games.
 
